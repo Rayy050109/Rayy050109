@@ -1,4 +1,4 @@
-## Oiii, eu sou à Rayy050109 👋
+## Oiii, sou a Rayy 👋
 
 ## Bem vindos ao meu perfil!!
 
